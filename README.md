@@ -1,1 +1,1 @@
-# Company-Reaserch
+# Company-Research
